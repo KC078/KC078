@@ -5,7 +5,7 @@ Bengaluru, India | +91 9632030436 | kcckarthick078@gmail.com | [LinkedIn](https:
 ---
 
 ## PROFESSIONAL SUMMARY
-Senior Product Manager with 12+ years of experience delivering enterprise SaaS solutions, Data as a Product (DaaP) initiatives, and AI-driven platform strategies. Proven ability to translate complex engineering architectures into scalable, business-focused products. Expert in driving cross-functional alignment and delivering reliable, compliant, and performant data ecosystems.
+Senior Product Manager with 14+ years of experience delivering enterprise SaaS solutions, Data as a Product (DaaP) initiatives, and AI-driven platform strategies. Proven ability to translate complex engineering architectures into scalable, business-focused products. Expert in driving cross-functional alignment and delivering reliable, compliant, and performant data ecosystems.
 
 ---
 
